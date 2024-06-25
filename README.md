@@ -21,7 +21,7 @@ Feel free to reach out if you're interested in working together!
 
 ## 📫 Get in Touch
 - **Email**: [shahwaar889@gmail.com](mailto:shahwaar889@gmail.com)
-- **LinkedIn**: [Mirza Shahwaar](https://www.linkedin.com/in/mirzashahwaar)
+- **LinkedIn**: [Mirza Shahwaar]([https://www.linkedin.com/in/mirzashahwaar](https://www.linkedin.com/in/mirza-shahwaar-bb4b28248/))
 
 ## 😄 Pronouns
 He/Him
